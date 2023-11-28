@@ -1,2 +1,2 @@
-# EA-Music.github.io
+# EA-Music
 Quality light settings and a great sound system 
